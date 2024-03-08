@@ -13,4 +13,5 @@ Thank you for visiting, and I look forward to the opportunity to discuss these p
 
 Best regards,
 Gurpratap Thind
-gthind2@illinois.edu
+
+PS- Feel free to reach out to me on gthind2@illinois.edu
